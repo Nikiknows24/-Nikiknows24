@@ -11,3 +11,14 @@
 👉 https://niki-knows-future-skills.lovable.app  
 
 📈 Learn. Build. Grow.
+
+
+
+## 🤝 Work With Me:
+- 1:1 Resume Review
+- Career Guidance for Freshers
+- Freelance Skill Setup
+
+📩 DM me on Instagram to get started
+
+📌 Learn. Build. Grow.

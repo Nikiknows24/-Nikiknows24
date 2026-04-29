@@ -1,50 +1,14 @@
-# 👋 Hey, I’m Nikita
+# Welcome to Our Professional Landing Page
 
-🚀 I help students & freshers turn skills into income
+Welcome to our website! We are excited to have you here. Our goal is to provide you with top-notch services and solutions to meet your needs.
 
----
+## About Us
+We are a dedicated team of professionals who prioritize client satisfaction and strive for excellence in everything we do.
 
-## 💡 What I Help You With:
-✔ Skills that actually pay  
-✔ Resume that gets shortlisted  
-✔ Confidence to crack interviews  
+## Services
+- **Consulting**: Professional advice tailored to your business requirements.
+- **Development**: Custom software development to elevate your project.
+- **Marketing**: Strategies to enhance your online presence.
 
----
-
-## 🔗 Start Here:
-👉 https://niki-knows-future-skills.lovable.app  
-
----
-
-## 🤝 Work With Me:
-
-### 💼 Services:
-- 1:1 Resume Review  
-- Career Guidance for Freshers  
-- Freelance Skill Setup  
-
-👉 DM “START” on Instagram to get started  
-
----
-
-## 📊 Proof / Results:
-✔ Helped students improve resumes  
-✔ Guided freshers to start earning  
-✔ Sharing practical career strategies daily  
-
----
-
-## 🌐 Connect With Me:
-📸 Instagram:  https://www.instagram.com/nikiknows_1?igsh=NXQwMmQxY3FwNnhk&utm_source=qr
-💼 Portfolio: https://niki-knows-future-skills.lovable.app  
-💼 LinkedIn (Professional Journey): https://www.linkedin.com/company/nikiknows1/  
-
----
-
-## ⚡ Why Me?
-Because I focus on real-world skills, not theory  
-Simple strategies. Clear direction. No confusion.
-
----
-
-📌 Learn. Build. Earn.
+## Contact Us
+Feel free to reach out to us for any inquiries or information. We look forward to working with you!

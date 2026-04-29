@@ -1,24 +1,29 @@
-# 👋 Hey, I'm Nikita  
+# 👋 Hey, I’m Nikita
 
-🚀 Helping you build Skills, Resume & Confidence  
+🚀 I help students & freshers turn skills into income
+## 💡 What I Help You With:
+✔ Skills that actually pay  
+✔ Resume that gets shortlisted  
+✔ Confidence to crack interviews  
 
-## 💡 What I help you with:
-✔️ Skills that actually matter  
-✔️ Resume that gets noticed  
-✔️ Confidence to crack interviews  
-
-## 🌐 Start Here:
-👉 https://niki-knows-future-skills.lovable.app  
-
-📈 Learn. Build. Grow.
-
+## 🔗 Start Here:
+👉https://niki-knows-future-skills.lovable.app
 
 
 ## 🤝 Work With Me:
-- 1:1 Resume Review
-- Career Guidance for Freshers
-- Freelance Skill Setup
 
-📩 DM me on Instagram to get started
+### 💼 Services:
+- 1:1 Resume Review  
+- Career Guidance for Freshers  
+- Freelance Skill Setup  
 
-📌 Learn. Build. Grow.
+👉 DM me on Instagram to get started  
+
+
+## ⚡ Why Me?
+Because I focus on **real skills, not theory**  
+No fluff. Only practical growth.
+
+---
+
+📌 Learn. Build. Earn.
